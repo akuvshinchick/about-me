@@ -2,4 +2,4 @@
 I'm a nuclear engineer.
 But I want to change it...😀
 
-![just do it](https://drive.google.com/file/d/1RlCKb23npPenwhkz4I7fCEhxww18HL1C/view?usp=drive_link)
+![just do it](https://autogear.ru/misc/i/gallery/56028/2462466.jpg)
